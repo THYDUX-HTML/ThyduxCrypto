@@ -1,1 +1,1 @@
-# ThyduxCrypto
+# THYDUX CRYPTO ⚙️
